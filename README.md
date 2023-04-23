@@ -4,7 +4,7 @@ _List of my bright sides_
 
 1. *Smart*
 2. Organized
-3. Goof softskills
+3. Good softskills
 
 ## My photo
 
